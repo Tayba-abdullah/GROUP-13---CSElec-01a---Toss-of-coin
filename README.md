@@ -42,8 +42,9 @@
 <img width="1796" height="999" alt="627939228_1968091877076987_6096337611890373962_n" src="https://github.com/user-attachments/assets/3ab035fa-7350-4d29-ae45-af51193ad399" />
 
 # TOTAL OUTPUT
-<img width="859" height="259" alt="629869537_1202435475205691_1915663084597462223_n" src="https://github.com/user-attachments/assets/39a2c854-5407-4791-a565-86a3ae42dd6f" />
+
 <img width="784" height="964" alt="631013812_768134079238175_173322342811239099_n" src="https://github.com/user-attachments/assets/20cf503b-f8c8-419d-9cd6-a08ff8b5725f" />
+<img width="859" height="259" alt="629869537_1202435475205691_1915663084597462223_n" src="https://github.com/user-attachments/assets/39a2c854-5407-4791-a565-86a3ae42dd6f" />
 
 # NUMBER 6 (CANVASS HEAD AND TAIL) COMBINE
 <img width="781" height="180" alt="633873580_1258077672965983_5775150554241179079_n" src="https://github.com/user-attachments/assets/1b537e77-0472-4926-8463-49fa038beb3c" />
