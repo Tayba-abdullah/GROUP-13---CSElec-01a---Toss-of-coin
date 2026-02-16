@@ -49,3 +49,8 @@
 # NUMBER 6 (CANVASS HEAD AND TAIL) COMBINE
 <img width="781" height="180" alt="633873580_1258077672965983_5775150554241179079_n" src="https://github.com/user-attachments/assets/1b537e77-0472-4926-8463-49fa038beb3c" />
 <img width="1660" height="995" alt="628197899_776619015147774_358474297027079532_n" src="https://github.com/user-attachments/assets/485f13ee-4a99-4d55-ba3a-001408e4c632" />
+
+# MEMBERS
+# ERIKA UYASAN
+# TAYBA ABDULLAH
+# CHARLES CABRERA
